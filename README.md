@@ -1,1 +1,1 @@
-Pre-course material and excersizes
+Pre-course material and exercises
